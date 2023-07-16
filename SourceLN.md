@@ -1,5 +1,5 @@
 1. a man is yawning in his bedroom, anime style
-2. a land lady is knocking the door, anime style
+2. a beautiful girl is knocking the door, anime style
 3. a man is looking for wallet in his bedroom, anime style
 4. a man with a sleepy gesture, wearing a T-shirt is greeting the land lady with maid in the door, anime style
 5. a man is kneeling down and begging the land lady near a door, anime style
